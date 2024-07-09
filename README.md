@@ -1,1 +1,0 @@
-# sticfk.github.io
